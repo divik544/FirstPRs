@@ -17,3 +17,5 @@ First contributions updated!!!
 - [Pratyum](https://github.com/pratyum) is here 
 - [Sneha](https://github.com/sneha-bamba) is here
 - [Sahaj](https://github.com/sahaj-evens) had also come here
+### 2020
+-[Karvika](https://github.com/Karvika) is here
