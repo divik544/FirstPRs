@@ -18,7 +18,9 @@ First contributions updated!!!
 - [Sneha](https://github.com/sneha-bamba) is here
 - [Sahaj](https://github.com/sahaj-evens) had also come here
 
-
 ### 2020
 - [Deepesh Baid](https://github.com/deepeshbaid) was here again :wink:
 - Nihit was here
+-[Karvika](https://github.com/Karvika) is here
+
+
