@@ -21,6 +21,6 @@ First contributions updated!!!
 ### 2020
 - [Deepesh Baid](https://github.com/deepeshbaid) was here again :wink:
 - Nihit was here
--[Karvika](https://github.com/Karvika) is here
+- [Karvika](https://github.com/Karvika) is here
 
 
